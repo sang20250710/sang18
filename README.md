@@ -10,4 +10,4 @@
 
 这些平台提供丰富的国产三级专区资源，内容多样，分类清晰，用户可以轻松查找所需影片。每个视频页面详细标注时长、清晰度、主演等信息，支持高清播放，并能根据网络状况自动优化画质，确保流畅观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/sang20250710/sang18 ）</span>
